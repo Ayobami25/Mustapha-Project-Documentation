@@ -14,3 +14,5 @@ Société Athlétique de la Villa Primrose in Bordeaux, on clay. Only played in 
 In 1925, the French Championships became open to all amateurs internationally and was designated a major championship by the International Lawn Tennis Federation. It was held at the Stade Français in Saint-Cloud (site of the previous World Hard Court Championships) in 1925 and 1927, on clay courts. In 1926 the Croix-Catelan of the Racing Club de France hosted the event in Paris, site of the previous French club members only tournament, also on clay.
 
 Another clay court tournament, called the World Hard Court Championships, is sometimes considered the true precursor to the modern French Open as it admitted international competitors. This was held at Stade Français in Saint-Cloud, from 1912 to 1914, 1920, 1921 and 1923, with the 1922 event held in Brussels, Belgium. Winners of this tournament included world No. 1s such as Tony Wilding from New Zealand (1913, 1914) and Bill Tilden from the US (1921). In 1924 there was no World Hard Court Championships due to tennis being played at the Paris Olympic Games.
+
+![](tennis.jfif)
